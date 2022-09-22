@@ -1,0 +1,1 @@
+Easy maker cool passwd
